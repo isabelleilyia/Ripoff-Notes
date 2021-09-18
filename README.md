@@ -1,0 +1,2 @@
+# Ripoff Notes
+ 
